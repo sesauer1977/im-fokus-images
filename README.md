@@ -1,0 +1,1 @@
+# Im Fokus — Hero Images
